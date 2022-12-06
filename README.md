@@ -95,7 +95,7 @@ Oculus Quest 2 Conjunto de fone de ouvido VR de realidade virtual de 128 GB
 
 ![Image](https://user-images.githubusercontent.com/115034837/205933316-175c30ef-a53f-40c3-983b-08d216ef1e19.jpg)
 
-![Image](https://user-images.githubusercontent.com/115034837/205933316-175c30ef-a53f-40c3-983b-08d216ef1e19.jpg)
+![Image](https://user-images.githubusercontent.com/115034837/206004954-3daa710e-0baa-4a51-ba74-8f3f2589d5e7.jpg)
 
 R$  3.876,77 ou até 10x de R$ 387,74 sem juros
 --------------------------------------------------------------------------------------------------------------------------------------
