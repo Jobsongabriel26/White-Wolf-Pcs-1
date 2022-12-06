@@ -87,9 +87,18 @@ Mesa Gamer Escrivaninha para Computador 9409 Madesa - Preto
 
 R$ 269,99 ou até 5x de R$ 53,99 sem juros
 --------------------------------------------------------------------------------------------------------------------------------------
+Oculus Quest 2 Conjunto de fone de ouvido VR de realidade virtual de 128 GB
+--------------------------------------------------------------------------------------------------------------------------------------
+![Image](https://user-images.githubusercontent.com/115034837/205933257-f79020fd-d031-419f-a196-2a1d6d1dd5e0.jpg)
 
+![Image](https://user-images.githubusercontent.com/115034837/205933310-f882e1f3-3e08-451a-a727-d4426fc8fa54.jpg)
 
+![Image](https://user-images.githubusercontent.com/115034837/205933316-175c30ef-a53f-40c3-983b-08d216ef1e19.jpg)
 
+![Image](https://user-images.githubusercontent.com/115034837/205933316-175c30ef-a53f-40c3-983b-08d216ef1e19.jpg)
+
+R$  3.876,77 ou até 10x de R$ 387,74 sem juros
+--------------------------------------------------------------------------------------------------------------------------------------
 
 
 
